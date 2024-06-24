@@ -1,0 +1,2 @@
+# mercadomagico
+Variedades e acessorios
